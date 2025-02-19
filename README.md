@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Okhtaah 
+- 👋 Hi, I’m @Habiba 
 - 👀 I’m interested in coding & atoms
 - 🌱 I’m currently learning coding 
 - 📫 You can reach me through my email
